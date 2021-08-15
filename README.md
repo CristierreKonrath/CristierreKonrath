@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate with my technical skills and my knowledge in development 
 - 📫 How to reach me:
 e-mail: cristierreg.konrath@gmail.com
-linkedIn: [my profile] https://www.linkedin.com/in/cristierre-konrath-9590b6169/
+linkedIn: https://www.linkedin.com/in/cristierre-konrath-9590b6169/
